@@ -11,4 +11,4 @@ Here are some ways:
 2. Find NGOs that a similar to your beliefs and volunteer to support their activities
 3. Help the people around you
 
-
+Chris says: "Great work!"
